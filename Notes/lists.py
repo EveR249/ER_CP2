@@ -1,0 +1,1 @@
+# ER 2nd types of lists notes
